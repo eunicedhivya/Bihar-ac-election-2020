@@ -1,1 +1,1 @@
-# Bihar-ac-election-2020
+# Bihar Assembly Constituenct Election 2020
